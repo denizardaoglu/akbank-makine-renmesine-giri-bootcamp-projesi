@@ -1,0 +1,1 @@
+# akbank-makine-renmesine-giri-bootcamp-projesi
